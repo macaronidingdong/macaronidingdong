@@ -1,10 +1,10 @@
 <div align="center"> 
 
-![xoxo deuteragonistillusion](https://komarev.com/ghpvc/?username=your-macaronidingdong) 
+![xoxo @JOYRlDE](https://komarev.com/ghpvc/?username=your-macaronidingdong) 
 </div>
 
 
 <div align="center">
 
-![yippi](https://github.com/macaronidingdong/macaronidingdong/assets/158051381/62775bb2-7302-40fe-a2f0-ff715e7b7aaa)
+![mista](https://github.com/user-attachments/assets/0a2e5c40-4f01-4f59-96b8-530c2f33ca9e)
 </div>
