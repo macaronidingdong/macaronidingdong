@@ -6,5 +6,5 @@
 
 <div align="center">
 
-![mista](https://github.com/user-attachments/assets/0a2e5c40-4f01-4f59-96b8-530c2f33ca9e)
+![ryuseishidou](https://github.com/user-attachments/assets/<iframe src="https://assets.pinterest.com/ext/embed.html?id=789889222184453727" height="445" width="345" frameborder="0" scrolling="no" ></iframe>)
 </div>
