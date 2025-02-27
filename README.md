@@ -11,7 +11,7 @@
 
 <p align="center">
 @macaronidingdong ꜝꜝ <br>
- he/him⠀⠀﹐⠀⠀butters or mac ! <br>
- ⠀i luv my girlfriend KIRA ! ＞_＜ <br>
+ he/him⠀⠀﹐⠀⠀butter or mac ! <br>
+ ⠀i love my girlfriend !  <br>
 03·30·24⠀⠀‸⠀⠀KFMM GANG ON TOP
  
