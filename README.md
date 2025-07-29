@@ -12,6 +12,6 @@
 <p align="center">
 @macaronidingdong ꜝꜝ <br>
  he/him⠀⠀﹐⠀⠀butter or mac ! <br>
- ⠀tori is awesome !  <br>
+ ⠀#1 blond(e) lover  <br>
 03·30·24⠀⠀‸⠀⠀KFMM GANG ON TOP
  
